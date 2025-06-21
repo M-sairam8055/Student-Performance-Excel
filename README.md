@@ -16,5 +16,5 @@
 ---
 
 📊 Created by **M SAI RAM**  
-📧 Email: [your-email@example.com]  
-🔗 LinkedIn: [https://linkedin.com/in/yourname]
+📧 Email: msairamds@gmail.com
+🔗 LinkedIn: [https://www.linkedin.com/in/m-sai-ram-aaa325216/]
